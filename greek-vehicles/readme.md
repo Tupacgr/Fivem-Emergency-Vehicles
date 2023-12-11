@@ -1,1 +1,1 @@
-A set of liveries/ vehicles I have created so far, representing the greek police!
+A set of liveries/ vehicles I have created so far, representing the Greek emergency services!
