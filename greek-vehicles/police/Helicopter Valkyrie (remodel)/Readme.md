@@ -21,7 +21,7 @@ To apply the Greek Police livery, follow these steps:
 - Greek Livery: Fronx
 
 ## Attention
-Have taken permission to create the livery. Proof: [here - click me] https://ibb.co/GRxNXL7
+Have taken permission to create the livery. Proof: [here - click me] https://ibb.co/smbRxBP
 
 ## Terms of Service
 Please adhere to the original author's Terms of Service. This livery is not intended for commercial purposes. Do not use this livery for profit-making activities.
